@@ -1,5 +1,5 @@
 ### keep going
-> discord: @glopter [172491776555352065]  |  glopter39@gmail.com  |  this repo contains a public pgp key
+> discord: @glopter [172491776555352065]  |  glopter39@gmail.com  |  [PUBLIC PGP KEY](https://github.com/Froggymations/Froggymations/blob/main/PGP_PUBLIC)
 
 ## im frog aka glopter
 i have top 100 music taste, and am probably top 500 out of all people who have ever existed. despite this i stay extremely humble (top 1%) and am very easy to work with on projects.
