@@ -13,4 +13,4 @@
 
 > very open to direct communication on most topics through Discord (preferred), Signal, PGP encrypted emails
 
-glopter39@gmail.comm  |  this repo contains a public pgp key
+discord: @glopter [172491776555352065]  |  glopter39@gmail.com  |  this repo contains a public pgp key
