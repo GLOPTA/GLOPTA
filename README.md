@@ -1,4 +1,4 @@
-![image](https://github.com/Froggymations/Froggymations/assets/92065487/27ec8e7f-af5f-487f-80f3-f83a999eb431)
+![image](https://github.com/Froggymations/Froggymations/assets/92065487/2f153dfc-b3f3-41bf-96b2-b662c26b5cf1)
 
 ### keep going
 > discord: @glopter [172491776555352065]  |  glopter39@gmail.com  |  [PUBLIC PGP KEY](https://github.com/Froggymations/Froggymations/blob/main/PGP_PUBLIC)
