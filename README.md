@@ -2,8 +2,7 @@
 ### weeewoooweeewooooo big gloppa in da cut
 > discord: @glopter [172491776555352065]  |  glopter39@gmail.com  |  [PUBLIC PGP KEY](https://github.com/Froggymations/Froggymations/blob/main/PGP_PUBLIC)
 
-## im frog aka glopter
-im the goat
+## im frog aka GLOPTER
 
-wanna be friends
+wanna be friends ?
 dm me on Discord (preferred), Signal, or send PGP encrypted emails ( UH OH ! )
